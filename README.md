@@ -4,6 +4,8 @@ Silahkan di oprek sesuka hati😂😂
 
 yang di butuhkan ua+method yang menurut anda gacor!!!!!!!
 
+yang udah download modul nya lngsung git clone(YTTA)👇👇
+
 git clone https://github.com/Igo-XD/Berkah
 
          👇👇👇👇👇👇👇👇
