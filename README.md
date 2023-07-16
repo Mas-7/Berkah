@@ -1,0 +1,1 @@
+Jangan di recode tolol
